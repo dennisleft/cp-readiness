@@ -1,1 +1,1 @@
-Dennis here, seeking to be a good software development
+Dennis here, seeking to be a good software developer
